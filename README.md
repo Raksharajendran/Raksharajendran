@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **raksharajendran18@gmail.com**
 
-- ⚡ Fun fact **I'm a quick and vivid learner heading towards my passion!**
+- ⚡ Interesting Fact **I'm a quick and vivid learner heading towards my passion!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
